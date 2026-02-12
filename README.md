@@ -1,2 +1,2 @@
 <p align="center">
-$\text{\color{#D12D40}WIP . }$ <br> 
+$\text{\color{#DA9DAC}foids and media illiterate people dni }$ <br> 
